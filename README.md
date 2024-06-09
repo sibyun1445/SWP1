@@ -1,2 +1,2 @@
-20243155 Byun Sang In!!
+20243155  Byun Sang In!!
 Kookmin Univ.AI
